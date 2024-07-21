@@ -1,6 +1,4 @@
-[Rimur4.MD](https://github.com/user-attachments/files/16325619/Rimur4.MD)# Rimur4
-
-- 👋 Hi, I’m @Rimur4
+👋 Hi, I’m @Rimur4
 
 
 Water > Coffee ☕
